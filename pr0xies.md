@@ -11,3 +11,29 @@ go wild. cpm ftw
 
 **Rammerhead || RECCOMENDED** Go To [Rammerhead](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md/
 
+
+
+
+
+
+
+
+
+
+
+
+
+https://yodisfr.question.blueshadows.cl/ <br>
+https://littleteehee-evan.blueshadows.cl/ <br>
+**JUST ADDED** https://superfortnitecl.blueshadows.cl/ <br>
+**JUST ADDED** https://readingisfunforall.blueshadows.cl/ <br>
+**JUST ADDED** https://manyhouses.blueshadows.cl/ <br>
+**JUST ADDED** https://mathematics.ok.to.blueshadows.cl/  <br>
+**JUST ADDED** https://failure.pbsaidthis.blueshadows.cl/  <br>
+**JUST ADDED** https://universal.planetsandmath.blueshadows.cl/ <br>
+**JUST ADDED** https://learningwithfriends.blueshadows.cl/ <br>
+https://disforyall.nullexistence.net/ <br>
+https://reading.info.nullexistence.net/ <br>
+https://nan-nonexistent.nullexistence.net/ <br>
+https://uhmactually.nullexistence.net/ <br>
+https://wire.nullexistence.net/ <br>
