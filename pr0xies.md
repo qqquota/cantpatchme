@@ -7,3 +7,7 @@ go wild. cpm ftw
 **Other files that may be to your liking:** <br>
 **B00kmarklets:** Click [here](https://github.com/qqquota/cantpatchme/blob/main/b00kmarklets.md) <br>
 
+## Table of Contents / URL Shortcuts <br>
+
+**Rammerhead || RECCOMENDED** Go To [Rammerhead](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md/
+
