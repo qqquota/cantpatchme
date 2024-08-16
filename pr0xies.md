@@ -2,4 +2,6 @@
 
 ## If you somewhat find this silly list for finding the flaws of your schools blocking system, then star this repo bretheren !!
 
+go wild. cpm ftw
+
 **Other files that may be to your liking:** <br>
