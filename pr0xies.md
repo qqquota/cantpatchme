@@ -5,7 +5,7 @@
 go wild. cpm ftw
 
 **Other files that may be to your liking:** <br>
-**B00kmarklets:** Click [here](https://github.com/qqquota/cantpatchme/blob/main/b00kmarklets.md) <br>
+**B00kmarklets:** Click [here](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md#rammerhead--reccomended-pr0xy-browser) <br>
 
 ## Table of Contents / URL Shortcuts <br>
 
