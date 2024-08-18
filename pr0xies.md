@@ -5,11 +5,11 @@
 go wild. cpm ftw
 
 **Other files that may be to your liking:** <br>
-**B00kmarklets:** Click [here](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md#rammerhead--reccomended-pr0xy-browser) <br>
+**B00kmarklets:** **Click [here](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md#rammerhead--reccomended-pr0xy-browser)** <br>
 
 ## Table of Contents / URL Shortcuts <br>
 
-**Rammerhead || RECCOMENDED** Go To [Rammerhead](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md/) <br>
+**Rammerhead || RECCOMENDED** **Go To [Rammerhead](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md/)** <br>
 
 
 
