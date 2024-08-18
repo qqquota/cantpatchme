@@ -9,7 +9,7 @@ go wild. cpm ftw
 
 ## Table of Contents / URL Shortcuts <br>
 
-**Rammerhead || RECCOMENDED** **Go To [Rammerhead](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md/)** <br>
+**Rammerhead (Browser)** **Go To [Rammerhead](https://github.com/qqquota/cantpatchme/blob/main/pr0xies.md/)** <br>
 
 
 
