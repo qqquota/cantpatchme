@@ -134,7 +134,7 @@ https://jakes-private-link-2.scottexteriors.com/ <br>
 https://a.flurstr17.de/ <br>
 https://advertising.help.cheapestflight.ru/ <br>
 https://chicken-shall-be-fried.mctwisted.pro/ <br>
-https://alternative.appswiss.ch/ <br> <br>
+https://alternative.appswiss.ch/ <br>
 https://signup.addplus.cl/ <br>
 https://artclasssubtoianbobssofunnylikeiwasinthemoviesonetimeandthenisu.unibutton.com/ <br>
 https://funworkforyou.tinysun.net/ <br>
